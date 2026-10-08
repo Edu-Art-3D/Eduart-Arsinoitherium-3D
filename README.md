@@ -1,1 +1,1 @@
-# Eduart-Arsinoitheriu-3D
+# Eduart-Arsinoitherium-3D
